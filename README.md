@@ -5,4 +5,4 @@
 > Please go to [my new profile](https://github.com/Javinrus) if you wish to continue.
 > Goodbye and also thank you.
 >
-> This notice will stay up for a while fo clear up some things.
+> This notice will stay up for a while to clear up some things.
