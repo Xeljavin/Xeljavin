@@ -4,3 +4,4 @@
 >
 > Please go to [my new profile](https://github.com/Javinrus) if you wish to continue.
 > Goodbye and thank you.
+> It was a good time while it lasted, at least on this account.
